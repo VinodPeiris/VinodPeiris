@@ -11,7 +11,7 @@
 
 - 🤓 Always learning **new things.**
 
-- 📫 How to reach me **tharindupeiris61@gmail.com**
+- 📫 How to reach me :- **tharindupeiris61@gmail.com**
 
 
 <h3 align="left">Languages and Tools:</h3>
